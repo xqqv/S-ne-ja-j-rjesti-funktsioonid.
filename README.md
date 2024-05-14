@@ -1,0 +1,1 @@
+# S-ne-ja-j-rjesti-funktsioonid.
